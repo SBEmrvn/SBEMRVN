@@ -10,6 +10,7 @@
 - 👯 I’m looking to collaborate on **Tech Projects – Practical solutions and innovative ideas. 📊 Data & Automation – Scripts and tools for efficiency. 🎨 Creative Works – Graphics, UI/UX concepts, and designs. 🛠 Problem-Solving & Algorithms – Code challenges and optimizations.**
 
 - 📫 How to reach me **mrvnpapi@gmail.com**
+- TEL NO: +250792575132
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
